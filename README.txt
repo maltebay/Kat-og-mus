@@ -1,0 +1,1 @@
+Der mangler kollisioner men ellers burde alt være på plads
